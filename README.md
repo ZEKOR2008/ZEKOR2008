@@ -30,10 +30,10 @@ Startups in tech innovation, particularly in metaverse and blockchain
 Working on cross-disciplinary projects that bring technology & creativity together
 📫 How to reach me
 
-Email: zekor4567@example.com
-Facebook: https://facebook.com/dangkhoiuytin
+Email: zekor4567@gmail.com
+Facebook: https://facebook.com/
 IS ME: ZEKOR2008
-Website: https://keosubvip.site/
+Website: https://profile.mamnonhoangmai.edu.vn
 🔤 Pronouns: He/Him/His
 
 ⚡ Fun fact:
